@@ -7,3 +7,4 @@ practico futbol y atletismo
 mi comida favorita es el espaguetti
 
 vivo en valle de Bravo Estado de Mexico
+tengo 20 años y  tengo 3 hermanas vivo con mi sr papa
